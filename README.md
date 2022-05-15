@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-I am Prince Katare,a 2nd Year Student BTech CSE at JUET Guna, keen interest in learning new things and exploring new technologies. With my technical skills I am looking for opportunities which will help me grow and gain new experiences.
+I am PRINCE KATARE,a 2nd Year Student BTech CSE at JUET Guna, keen interest in learning new things and exploring new technologies. With my technical skills I am looking for opportunities which will help me grow and gain new experiences.
 
 Let's HUSTLE and GROW together!!
 
